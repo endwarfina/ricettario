@@ -1,3 +1,3 @@
-# ricettario
+# RICETTARIO
 
-Ricettario di Valeria
+TEO È BELLO
